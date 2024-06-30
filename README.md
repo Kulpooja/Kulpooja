@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kulpooja
+- 👋 Hi, I’m @pooja kulkarni
 - 👀 I’m interested in ...Product Design, Music, Paintings, Food, COFFEE
 - 🌱 I’m currently learning ... Framer
 - 💞️ I’m looking to collaborate on ...Projects from brands, product design, user research, design audit, design systems.
