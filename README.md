@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @pooja kulkarni
-- 👀 I’m interested in ...Product Design, Music, Paintings, Food, COFFEE
+- 👀 I’m interested in ...Product Design, Design Systems, Music, Paintings, Food, COFFEE
 - 🌱 I’m currently learning ... Framer
-- 💞️ I’m looking to collaborate on ...Projects from brands, product design, user research, design audit, design systems.
+- 💞️ I’m looking to collaborate on ...lead role in product design, user research, design audit, design systems.
 - 📫 How to reach me kulpooja1980@gmail.com
 - 😄 Pronouns: ...Pooja
 - ⚡ Fun fact: ...I enjoy food
