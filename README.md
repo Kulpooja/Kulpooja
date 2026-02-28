@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Product Design, Design Systems, Music, Paintings, Food, COFFEE
 - 🌱 I’m currently learning ... Framer
 - 💞️ I’m looking to collaborate on ...lead role in product design, user research, design audit, design systems.
-- 📫 How to reach me kulpooja1980@gmail.com
+- 📫 How to reach me poojakulkarni08@outlook.com
 - 😄 Pronouns: ...Pooja
 - ⚡ Fun fact: ...I enjoy food
 
